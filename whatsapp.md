@@ -13,7 +13,7 @@ If you want to keep your Community Hub, Café, Growing Space and Gardens please 
 *1. Registering and objection*
 Go to bit.ly/luos-obj-plan, click on "Inform the Authority that you *object* to the Planning Application" and add some comments if you like. Here is an example you can use: bit.ly/luos-comments
 
-*2. Contacting the planning officer**
+*2. Contacting the planning officer*
 Send an email objecting to application *HGY/2022/0656 Ashley Gardens* to the planning officer whose email is Philip.Elliott@haringey.gov.uk
 
 *3. Coming to see us*
